@@ -10,7 +10,7 @@ Meu nome é Nicole Rodrigues
 
 00001089549428sp@al.educacao.sp.gov.br
 
-@nicole33
+@nicole33☪🔯
 
 
 ![](https://media.tenor.com/olr0tUuWI7gAAAAi/cuh-cat.gif)
